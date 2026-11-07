@@ -1,2 +1,3 @@
 Grejdinoiu Octavian
-MCAST Student
+Maker / Designer / Programmer
+MCAST Alumni
